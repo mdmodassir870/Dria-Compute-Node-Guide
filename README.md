@@ -128,3 +128,5 @@ U can get Gemini API key From here--  https://aistudio.google.com/app/apikey
 Lets Fucking Go🚀 Its Done✅
 
 Thank u❤️
+
+thank 
